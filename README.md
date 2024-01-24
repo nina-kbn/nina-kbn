@@ -18,13 +18,13 @@ I'm open to collaboration on projects related to SAAS product management, innova
 <br>
 Feel free to reach out if you have interesting ideas or if you're interested in collaborating on a project.
 
-## 👀 Why Product Design ?
+## 👀 Why Product  ?
 
-Transitioning to product design captivates me because it allows me to merge my sales expertise with a passion for creating solutions. 
+Becoming a Product Manager allows me to merge my sales expertise with a passion for creating solutions. 
 <br>
 With a profound understanding of customer needs, effective communication skills, and a drive for strategic decision-making,
 <br>
-I see product design as the ideal avenue to shape innovative solutions that directly impact user experiences.
+I see this job as the ideal avenue to shape innovative solutions that directly impact user experiences.
 
 ## 📫 How to Reach Me
 
