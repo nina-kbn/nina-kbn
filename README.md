@@ -30,6 +30,7 @@ I see product design as the ideal avenue to shape innovative solutions that dire
 
 - Email: [nina.laouadi@icloud.com](mailto:nina.laouadi@icloud.com)
 - LinkedIn: [Nina L.](https://www.linkedin.com/in/nina-laouadi/)
+<br>
 Feel free to explore my GitHub projects and contact me for any collaboration or engaging discussions about product management!
   
 ## ⚡ Fun Fact
